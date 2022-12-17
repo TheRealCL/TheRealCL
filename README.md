@@ -1,5 +1,5 @@
-@TheRealCL
-DM me if you want to collaborate on a project
+- @TheRealCL
+- DM me if you want to collaborate on a project
 
 
 <!---
